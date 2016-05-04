@@ -1,0 +1,1 @@
+**I've never used XBMC, so I don't actually know. But if anyone else knows, leave a comment, and I can add it to this page.**
